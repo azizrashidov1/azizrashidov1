@@ -4,7 +4,6 @@
 - 📫 How to reach me You can reach me by Telegramm:https://t.me/abvgdejziyklmno
 -                                         Instagramm:qwertys_aza
 -                                         E-mail: azizrasidov1@gmail.com
-- 😄 Pronouns: ...
 - ⚡ Fun fact: I am meloman (i.e i don`t know how to live without music)
 
 <!---
